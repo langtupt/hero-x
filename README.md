@@ -26,3 +26,4 @@ Why choose HERO X?
 
 Don't let ransomware take control of your digital life!
 Download HERO X - Ransomware Detector now and experience peace of mind knowing that your data is always protected.
+https://ransomwaredetector.com/
